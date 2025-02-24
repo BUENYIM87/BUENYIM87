@@ -8,7 +8,7 @@ My Background:
 
 🎭 BSc in Theatre Arts | 📺 MSc in Cultural and Media Studies
 
-🎙️ Radio Show Host | 📹 YouTube Content Creator
+📹 YouTube Content Creator
 
 ✍️ Storytelling | Scriptwriting | Playwriting
 
