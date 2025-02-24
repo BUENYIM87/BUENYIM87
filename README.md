@@ -45,7 +45,7 @@ What I'm Working On
 
 🎭 Expanding City of Life Foundation's impact by developing new theater-based rehabilitation programs for young offenders
 
-🎮 Organizing monthly community games night events
+🎮 Organising monthly community games nights
 
 🚀 Expanding my Virtual Assistant services
 
