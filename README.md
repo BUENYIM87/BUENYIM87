@@ -2,7 +2,7 @@ Hi there! 👋 Welcome to my GitHub
 
 About Me
 
-I'm a Virtual Assistant (VA) specializing in talent management and entertainment, with expertise in writing and communication. I have over three years of experience assisting entrepreneurs, coaches, and entertainment professionals. Additionally, I'm a creative writer passionate about storytelling, werewolf fiction, and educational wildlife narratives.
+I'm a Virtual Assistant (VA) specialising in talent management and entertainment, with expertise in writing and communication. I have over three years of experience assisting entrepreneurs, and professionals. Additionally, I'm a creative writer passionate about storytelling, werewolf fiction, and educational wildlife narratives.
 
 My Background:
 
